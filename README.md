@@ -26,4 +26,4 @@ Diwali-Firework is not just a simulation; it's a celebration of lights, colors, 
 
 Join us in this virtual Diwali celebration, where every click brings forth a burst of joy. Share the magic with your friends and family, and let the lights of Diwali illuminate your digital world.
 
-### Happy Diwali! 🪔
+### Celebrate Diwali with Fireworks Now! [Click Here](https://supriyo-455.github.io/Diwali-Firework/) 🪔
